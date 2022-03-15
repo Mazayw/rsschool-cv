@@ -1,1 +1,1 @@
-# rsschool-cv
+https://mazayw.github.io/rsschool-cv/cv
